@@ -1,1 +1,0 @@
-# godrosicky.io
